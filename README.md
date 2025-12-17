@@ -1,2 +1,1 @@
-# KYUKK
-KYUIK
+CN EX 3 
